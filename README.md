@@ -1,0 +1,2 @@
+# Astrology
+free solution 
